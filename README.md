@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YisusReveck
+- 👀 I’m interested in Kimi no Nawa
+- 🌱 I’m currently learning Java language
+- 💞️ I’m looking to collaborate on nothing in special
+- 📫 How to reach me. Haha just kidding, you can't reach me
